@@ -1,1 +1,0 @@
-# estadistiko.github.io
